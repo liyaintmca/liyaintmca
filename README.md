@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **liyakjoseph5@gmail.com**
 
-- 📄 Know about my experiences [https://github.com/liyaintmca/RESUME](https://github.com/liyaintmca/RESUME)
+- 📄 Know about my experiences [https://drive.google.com/drive/folders/1DKQfa92SMMjR3W0dM1xnKb-NZ5tUB4AB](https://drive.google.com/drive/folders/1DKQfa92SMMjR3W0dM1xnKb-NZ5tUB4AB)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
